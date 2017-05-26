@@ -10,6 +10,11 @@ BC & Lowy
 3.
 Louis C.K.
 [-](https://www.youtube.com/watch?v=rrur2q1ZDF0)
+[-](https://www.youtube.com/watch?v=ycDdHDD2zfc)
+
+4.
+David Letterman
+[-](https://www.letscorp.net/archives/119668#某种程度上，知道它的疯狂程度-才不会受到它的干扰。才能确定由头-而不用看细节。我的由头就是由头-寻开心-条件限制-看先做什么-做一个休闲时光easyToGetAlongWith的人#======thisisMe.WheniThinkitstooDangrous,IStepAside.=======够狠，12岁小孩的意图:不分析你的意图，你可能烦到我-我就防着你，就这么简单。---避开了烦人的人而后会自然而然地形成交往圈子，再烦人就再踢出去一个)
 
 -
 
