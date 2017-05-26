@@ -20,6 +20,6 @@ Louis C.K.
 -
 
 找女孩：
-由头-真实惠
-[Finder](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-Finder.md) 不把自己往“红色”范围靠:主要是聊非严肃话题
+由头-真实惠<br>
+[Finder](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-Finder.md) 不把自己往“红色”范围靠:主要是聊非严肃话题<br>
 
