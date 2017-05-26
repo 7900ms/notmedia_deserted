@@ -10,7 +10,7 @@ BC & Lowy
 3.
 Louis C.K.
 [-](https://www.youtube.com/watch?v=rrur2q1ZDF0)
-[-](https://www.youtube.com/watch?v=ycDdHDD2zfc)
+[-](https://www.youtube.com/watch?v=ycDdHDD2zfc#成為偉大喜劇家)
 
 4.
 David Letterman
